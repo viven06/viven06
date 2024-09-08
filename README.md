@@ -1,5 +1,5 @@
 # 💫 About Me:
-Organized chaos 🦉 and diligent <br>laziness 👾 lay at the core of my skills, which I try to improve with each new <br>day and each new challenge I face<br>regarding tech and programming. 🛸
+Organized chaos 🦉 and diligent laziness 👾 lay at the core of my skills, which I try to improve with each new day and each new challenge I faceregarding tech and programming. 🛸
 
 
 ## 🌐 Socials:
