@@ -1,5 +1,5 @@
 # 💫 About Me:
-Organized chaos 🦉 and diligent laziness 🛸
+Organized chaos 🦉 
 
 
 ## 🌐 Socials:
